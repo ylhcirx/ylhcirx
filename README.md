@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning Computer Science, Engineering
 - 📫 How to reach me Discord(I don't give you a name)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Nothing
+- ⚡ Age: 14 years old.
 
                                                                       
 (I just Create This account because I just wanna check smth on GitHub)
