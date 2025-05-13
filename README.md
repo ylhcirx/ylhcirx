@@ -3,7 +3,7 @@
 - 👋 Hi, I’m @ylhcirx
 - 👀 I’m interested in Biology,Computer Science.
 - 🌱 I’m currently learning Computer Science, Engineering
-- 📫 How to reach me Discord(Ylcirx)
+- 📫 How to reach me Discord(Ylhcirx)
 - 😄 Pronouns: He/Him
 - ⚡ Age: 14 years old.
 - P.S. I didn't visited Github every week
